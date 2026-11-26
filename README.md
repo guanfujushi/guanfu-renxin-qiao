@@ -4,6 +4,8 @@
 
 **作者：观复居士 ·商务合作：13148728713；微信号：guanfujs**
 
+[![SkillHub](https://img.shields.io/badge/下载-SkillHub-orange)](https://www.skillhub.cn/skills/guanfu-renxin-qiao)
+
 **English**: Sales psychology self-check rooted in classical Chinese wisdom — a four-step intent-reading method, seven psychological 'switches', the psychology of pricing, and a list of communication pitfalls. For pitches that aren't landing.
 
 ---
